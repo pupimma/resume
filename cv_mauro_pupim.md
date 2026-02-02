@@ -1,6 +1,6 @@
 # MAURO PUPIM
 
-### Data & AI Team Lead | Delivery Manager | Engenharia de Dados
+###  Data Manager | Delivery Manager | Data & AI Team Lead
 
 📍 **Localização:** Araçatuba, SP (Disponível para Remoto)  
 📱 **Telefone:** (18) 99663-0458  
